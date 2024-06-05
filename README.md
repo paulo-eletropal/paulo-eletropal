@@ -12,4 +12,4 @@ meu nome e andrey rodrigues palhares santos, mais vocês podem me chamar de baia
 
 ### SANTOS_DA_VK
 
-![](https://tenor.com/pt-BR/view/bryan-gif-gif-25141584)
+![](https://media1.tenor.com/m/VGnIKs24lbIAAAAC/bryan-gif.gif)
