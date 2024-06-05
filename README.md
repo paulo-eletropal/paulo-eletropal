@@ -11,3 +11,5 @@ meu nome e andrey rodrigues palhares santos, mais vocês podem me chamar de baia
 00001226669293sp@al.educacao.sp.gov.br
 
 ### SANTOS_DA_VK
+
+![](https://tenor.com/bREDA.gif)
